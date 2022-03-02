@@ -1,1 +1,1 @@
-Trochę szajsu
+Trochę śmiecia
